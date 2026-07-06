@@ -1,1 +1,1 @@
-# Uk-ad-Automatycznej-Regulacji
+# Uklad-Automatycznej-Regulacji
